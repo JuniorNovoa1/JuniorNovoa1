@@ -9,9 +9,7 @@ If you ever need anything from me, my Discord is: "juniornovoa"
 - Random Shadow Mod
 - Drowning in Darkness
 - Disabled Memories
-- Cataclysm Fragment
 - FNF: Funkin Of Darkness
-- Pibby: Empty Feelings
 - Pibby: Silent Sorrows
   
 (did you notice the trend)
